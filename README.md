@@ -1,3 +1,3 @@
 # hallo
 First repo
-Hi I'm a freealance artst
+Hi I want to be a learner forever.
